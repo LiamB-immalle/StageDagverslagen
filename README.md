@@ -10,3 +10,7 @@ Vandaag kwam ik aan en kon ik gelijk naar het bureau gaan om daar al wat te doen
 
 ## Dag 3 (2017-10-04)
 Dag 3 was een rustige dag,er waren niet zo heel veel problemen dus zaten we veel op het bureau. Hier kregen we van onze stagebegeleider een uitleg en showcase van alle software die gebruikt wordt, deze is veel verouderd maar ze zijn momenteel op een nieuw systeem aan het overschakelen. Daarnaast heb ik vooral aan mijn giptaken gewerkt zodat daar nu al het grootste deel van voltooid is of op zijn minst aan begonnen. Ook waren er nieuwe garnalen aangekomen voor in het aquarium, en dat nog wel juist op werelddierendag.
+
+
+## Dag 4 (2017-10-04)
+Ook deze dag was een zeer rustige dag zonder veel mensen die een probleempje hadden met hun computer. Hierdoor hebben we heel wat kunnen praten met onze stagebegeleider om ook hem beter te leren kennen zoals we de andere IT-er al hadden leren kennen tijdens het rondrijden naar de andere posten op dag 1. Ook kregen we het netwerkschema te zien en nog een beetje extra uitleg daarbij waardoor we in principe zowel alles van het netwerk fysiek als op papier hebben gezien en van de software hadden we ook al een demonstratie gekregen. Hierdoor schiet er nog 1 dag over waarin onze stagebegeleider zelf niet aanwezig zal zijn en we dus een hele dag met de andere IT-er nog een paar puntjes overlopen.
