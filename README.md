@@ -18,3 +18,7 @@ Ook deze dag was een zeer rustige dag zonder veel mensen die een probleempje had
 
 ## Dag 5 (2017-10-06)
 Op de laatste dag was onze stagebegeleider niet aanwezig maar er was een vervangbegeleider, de andere IT-er was namelijk nog aanwezig. We hebben vandaag onze taken afgewerkt en ingeleverd voor de eerste versie zodat we ook daar niet meer aan hoeven te denken als we het weekend beginnen. Voor de rest hebben we nog wat gepraat en gelachen en ook nog wat met virtuele machines gespeeld in virtualbox. Vandaag waren er verrassend weinig problemen, we zijn maar 1 keer weggemoeten om iemand te helpen en voor de rest heeft niemand gebeld of langsgekomen.
+
+
+## Eindwoord
+Het was zeer fijn om een weekje in het bedrijfsleven te zijn geweest waarin ik de kans kreeg om met 2 uiterst aangename begeleiders snel veel bij te leren. Het was een leerrijke en succesvolle observatiestage vol leuke momenten.
