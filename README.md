@@ -9,7 +9,7 @@ Vandaag kwam ik aan en kon ik gelijk naar het bureau gaan om daar al wat te doen
 
 
 ## Dag 3 (2017-10-04)
-Dag 3 was een rustige dag,er waren niet zo heel veel problemen dus zaten we veel op het bureau. Hier kregen we van onze stagebegeleider een uitleg en showcase van alle software die gebruikt wordt, deze is veel verouderd maar ze zijn momenteel op een nieuw systeem aan het overschakelen. Daarnaast heb ik vooral aan mijn giptaken gewerkt zodat daar nu al het grootste deel van voltooid is of op zijn minst aan begonnen. Ook waren er nieuwe garnalen aangekomen voor in het aquarium, en dat nog wel juist op werelddierendag.
+Dag 3 was een rustige dag,er waren niet zo heel veel problemen dus zaten we veel op het bureau. Hier kregen we van onze stagebegeleider een uitleg en showcase van alle software die gebruikt wordt. Deze is verouderd maar ze zijn momenteel op een nieuw systeem aan het overschakelen. Daarnaast heb ik vooral aan mijn giptaken gewerkt zodat daar nu al het grootste deel van voltooid is of op zijn minst aan begonnen. Ook waren er nieuwe garnalen aangekomen voor in het aquarium, en dat nog wel juist op werelddierendag.
 
 
 ## Dag 4 (2017-10-05)
